@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @areliachel
-- 👀 I’m interested in programmer
+- 👋 Hi, I’m @matchurel on IG
+- 👀 I’m interested in programmer and geologi
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on coding maybe? but i'm just a beginner
 - 📫 How to reach me idk
